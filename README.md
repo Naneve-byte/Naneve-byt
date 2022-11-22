@@ -7,7 +7,7 @@
 
 
 - 🌱 I’m Still learning 
-- ⚡ Fun fact: Big Fan of the :zap: emoji
+- ⚡ Fun fact: Big Fan of the myself
 
 
 
